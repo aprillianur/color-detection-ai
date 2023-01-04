@@ -1,1 +1,4 @@
-# color-detection-ai
+# Aplikasi Pendeteksi Warna
+
+# Follow IG @aprillia.nurs
+# Thank u
